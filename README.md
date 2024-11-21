@@ -1,1 +1,1 @@
-# latihan-branch terbaru
+# ini adalah latihan ku ya
