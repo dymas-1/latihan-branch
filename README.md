@@ -1,1 +1,1 @@
-# latihancuy
+# ini adalah latihan ku ya
